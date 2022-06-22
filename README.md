@@ -16,3 +16,6 @@ My Twitter - https://twitter.com/piter72245737
 
 # [-.BTMC.Freedom.Dive](https://www.mediafire.com/file/telzb3fcwl18l9p/%25E2%258C%259EFreedom_Dive__%25E2%2586%2593%25E2%258C%259D.osk/file)
 ![](https://cdn.discordapp.com/attachments/932012499165929512/989280802602901505/screenshot156.jpg)
+
+# [boop instafade](https://drive.google.com/file/d/1p74fOKlQldnOpHGlTaMYg66zHAK1jb5I/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/932012499165929512/989287596758822912/screenshot157.jpg)
