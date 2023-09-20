@@ -1,7 +1,5 @@
 # Czaderski Skins Official
 
-My Discord - https://discord.gg/AqyPeYMpvw
-
 My Twitch - https://www.twitch.tv/czaderskipiter
 
 My Twitter - https://twitter.com/piter72245737
